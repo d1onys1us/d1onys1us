@@ -1,7 +1,7 @@
-📛 David / d1onysus
+📛 d1onys1us
 
-🌏 EST
+🌏 UTC-05:00
 
 🤙 food, keyboards, weightlifting, coffee, philosophy, buddhism/hinduism, travel, ethereum, runescape, 3d printing
 
-💬 [d1onysus.eth](http://d1onysus.eth.limo)
+💬 [d1onys1us.eth](http://d1onys1us.eth.limo)
